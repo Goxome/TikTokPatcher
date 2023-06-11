@@ -13,3 +13,7 @@ How to Use!
 8. After Sucessful! Click on Build Button.
 
 ![IMG_20230612_012012_424](https://github.com/Goxome/TikTokPatcher/assets/56850970/bcf8e4ca-a4d6-4f1a-8610-cc7fc2791c7a)
+
+## Developed by Goxome
+Contact Information: GoxomeOfficial@gmail.com
+
