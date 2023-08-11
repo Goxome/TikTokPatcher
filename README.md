@@ -14,6 +14,8 @@ How to Use!
 
 ![IMG_20230612_012012_424](https://github.com/Goxome/TikTokPatcher/assets/56850970/bcf8e4ca-a4d6-4f1a-8610-cc7fc2791c7a)
 
+Download Patched TikTok Apk: https://t.me/GoxomeOfficial/355
+
 ## Developed by Goxome
 Contact Information: GoxomeOfficial@gmail.com
 
